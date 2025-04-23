@@ -1,1 +1,0 @@
-# hankimura.github.io
